@@ -1,0 +1,1 @@
+# skgyt2-web.github.io
